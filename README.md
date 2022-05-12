@@ -7,9 +7,9 @@
 ### Pronouns: [he/him/his](https://pronoun.is/he)
 
 <details>
-    <summary><strong>Pictue</strong></summary>
+    <summary><strong>goat</strong></summary>
     <details>
-      <summary><strong>LOVE-原图</strong></summary>
+      <summary><strong>yeat >>></strong></summary>
       <ul>
 
 <p align="center">

@@ -7,9 +7,9 @@
 ### Pronouns: [he/him/his](https://pronoun.is/he)
 
 <details>
-    <summary><strong>goat</strong></summary>
+    <summary><strong>CLICK ME!</strong></summary>
     <details>
-      <summary><strong>yeat >>></strong></summary>
+      <summary><strong>yeat > you</strong></summary>
       <ul>
 
 <p align="center">

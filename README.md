@@ -1,10 +1,10 @@
 
 
-# Yeat (Known As Moon) 💌
+# moon
 
-### Hi there 👋
+### hello
 
-### Pronouns: [he/him/his](https://pronoun.is/he)
+### solo.to: [click me fr](https://solo.to/greedy)
 
 <details>
     <summary><strong>CLICK ME!</strong></summary>
